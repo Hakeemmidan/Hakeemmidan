@@ -4,4 +4,4 @@
 
 ### ( ｡◕‿◕｡ )
 
-Constructive feedback welcome at Hakeemmidan@gamil.com
+Constructive feedback welcome at Hakeemmidan@gmail.com
